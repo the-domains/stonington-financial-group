@@ -1,0 +1,1 @@
+# stonington-financial-group
